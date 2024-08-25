@@ -1,1 +1,1 @@
-@zbpncake  𐔌 welcum (*ゝω･*)
+@zbpncake  𐔌 welcum (*ゝω･ )
