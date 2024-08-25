@@ -10,7 +10,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/8g2jr6.jpg)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i'm kinda like, in the hospital right now, sorry if i'm not as bright as always i've been feeling a lot better
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i'm kinda like, in the hospital right now, sorry if i'm not as bright as always. i've been feeling a lot better
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i still have to go through surgery. i have some months left, i'm trying to enjoy my time with all of you ^  ^
 
 
@@ -28,7 +28,3 @@ carrotsm!! i loev carrsort!!! cenours!! carro  i love!!1!!!1!
 EDIT: I'm generally unserious and tend to be less interactive in conversations!!
 
 I often feel uncomfortable talking seriously, just joking around and trying to have fun as a way of just taking it all out.
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/s2xp2r.PNG)
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀snuggle
