@@ -10,7 +10,7 @@ i'm a loser that's all you need to know.
 ![](https://wilardo.crd.co/assets/images/gallery16/b2f4523a_original.png?v=f32c5ae3) ![](https://wilardo.crd.co/assets/images/gallery16/633d42b2_original.png?v=f32c5ae3) ![](https://wilardo.crd.co/assets/images/gallery13/f618a5bf_original.gif?v=f32c5ae3)
 
 
-![](https://files.catbox.moe/kzpj8q.jpg)
+<a href="url"><img src="https://files.catbox.moe/kzpj8q.jpg" align="left" height="48" width="70" ></a>
 
 puppies looking for their owner, uh
 
