@@ -5,7 +5,7 @@
 
 sniperspy shippers go fuck off
 
-<a href="url"><img src="https://files.catbox.moe/8g2jr6.jpg" align="left" height="190" width="400" ></a>
+<a href="url"><img src="https://files.catbox.moe/8g2jr6.jpg" align="left" height="230" width="400" ></a>
 
 i'm a loser that's all you need to know.
 
