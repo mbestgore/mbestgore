@@ -16,6 +16,5 @@ puppies looking for their owner, uh
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/91b4b6bd5e972c0f10b955fb562aac76/2489ee9d774e4fdc-bf/s250x400/6ca6e9a2e34869c060e62ab264d05656e5cf4007.png)
 
-EDIT: I'm generally unserious and tend to be less interactive in conversations!!
 
-I often feel uncomfortable talking seriously, just joking around and trying to have fun .
+[go sign my atabook NOW](https://zbpancake.atabook.org/)
