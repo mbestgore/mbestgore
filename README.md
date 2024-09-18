@@ -1,8 +1,5 @@
 **@zbpncake** ![](https://pix.crd.co/assets/images/gallery18/2f0eb1d2_original.gif?v=bae75af9)
 
-
-[PLEASE check my straw page first](https://apncakes.straw.page/)
-
 sniperspy shippers go fuck off
 
 i'm a loser that's all you need to know.
