@@ -17,4 +17,3 @@
   nothing personal. (overly personal)
 </p> 
     
-![](https://komarev.com/ghpvc/?username=bbonkatomic&color=7e7e7e)
