@@ -1,7 +1,3 @@
-<!--- HEADER --->
-### <p align="center"><i>@<a href="https://steamcommunity.com/profiles/76561199687903579/">ino</a></i> 𖹭</i></b></p> 
-<!------------->
-
 <head>
 </head>
 </div>
